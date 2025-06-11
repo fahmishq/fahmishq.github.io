@@ -4,7 +4,9 @@ title: About
 permalink: /about/
 ---
 
-Welcome guys. My name is Fahmi and i'am 19 yo. as a student I really like to do things that are challenging, I have a passion for creating innovative and effective solutions. This website is where I share my projects, thoughts, and my journey.
+Welcome guys. My name is Fahmi and i'm 19 yo. as a student I really like to do things that are challenging, I have a passion for creating innovative and effective solutions. 
+
+This website is where I share my projects, thoughts, and my journey.
 
 ### More
 
