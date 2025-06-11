@@ -8,6 +8,6 @@ Welcome. My name is Fahmi and i'am 19 yo. as a student I really like to do thing
 
 ### More
 
-Don't wait for the right time. Create that time, because the only thing that's impossible is what you never try. So you have to start right now 
+Charles Buxton says "You will never find time fo anything, if you want time you must make it". It means create that your time, because the only thing that's impossible is what you never try. So you have to start right now 
 
 [Tele](t.me/fahmishdq)
